@@ -17,4 +17,4 @@ Below you find a set of chart demonstrating the paths that I'll take to adopt in
 
 I will continue to improve my skill set based  on the chart and get my dream job in one of these The warehouse group, Datacom, Trademe or Xero. I have choosed this companys based on their enviroment, people and opportunities it could change ;) 
 
-- Reach out to me any feedback [![LikedIn URL](https://www.linkedin.com/in/monikapatelit/)
+- Reach out to me any feedback [LikedIn URL](https://www.linkedin.com/in/monikapatelit/)
